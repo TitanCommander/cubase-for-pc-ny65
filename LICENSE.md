@@ -1,4 +1,4 @@
-# 
+# Enhance Cubase for PC | Cubase for Windows with secure Cubase for PC | Cubase for Windows Panel | pitch-shifting + plugin-management, the #1 panel. Includes pitch-shifting and
 
 
 
